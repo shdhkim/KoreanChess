@@ -1,2 +1,3 @@
 
-[리뉴얼장기.pptx](https://github.com/user-attachments/files/16922775/default.pptx)
+[Uploading 리뉴얼장기.pdf…]()
+
