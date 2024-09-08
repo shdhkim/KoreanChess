@@ -1,3 +1,3 @@
 
-[리뉴얼장기.pdf](https://github.com/user-attachments/files/16922782/default.pdf)
+[리뉴얼장기.pdf](https://github.com/user-attachments/files/16922787/default.pdf)
 
